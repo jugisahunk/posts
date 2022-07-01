@@ -1,0 +1,39 @@
+# The Fisherman and the Monk
+## Shui the Fisherman
+At the base of a great monastery flowed the mighty Li river. There lived a lowly fisherman. He came from a long line who toiled to make a life catching and selling whatever they could from those waters. So completely had this life defined his family that he was named "Shui" which means "water."
+
+Monks from a nearby monastery would buy the fish he caught. Occasionally, Shui would climb the arduous staircase named "The Ten Thousand Steps" to sell extra fish to very grateful monks. Doubtless, he needn't make the trek to sell his fish. He did it to see the wonderful things done and kept there. He wondered at the sophistication of the monks, the beautiful construction of their buildings, and the fragrance of agarwood and sandalwood incense perfuming the air.
+
+## The Thief of Joy
+
+Wonderful as it all was, Shui grew uneasy about his visits. He began to notice how he smelled much more like fish and river than incense. The monks he spoke with had shaved heads that seemed like brass orbs open to the mysteries of the heavens while his own was bound to earth -- destined to float up and downstream, ignorant of those more excellent things.
+
+Soon, he stopped climbing thosed damned steps. When monks would visit him, he kept his head bowed and eyes low avoiding their gaze. Surely they thought of him as a dullard and an uncultured simpleton. Eventually, he avoided the monks altogether.
+
+## Ling the Travelor
+
+One steamy summer evening, he was disturbed by a knock on his door. He had been preparing to take his boat out for an evening fish. Upon opening his door and to his alarm, a monk politely greeted him. The man's body was lithe and strong though he was well on in years. "Hello friend. My name is Ling. I fear I've overestimated my strength and won't be able to ascend the Ten Thousand Steps before the night arrives." Shui silently stared for an uncomfortable time before hastily stepping out and shutting his door. In an instant, the old feelings of shame flooded over him. He had been cleaning fish for drying and worried that the smell would be offensive to the serene-looking monk. "Y-yes. I've climbed those steps many times myself. It will be dangerous for you to return now."
+
+Another pregnant pause hung in the air. Ling gently swatted swarming river insects from his face. All at once, Shui realized why the monk was at his door. He...he wanted to be invited to stay the night! Panic edied and mixed into his anxiety. But, what could be done? He would surely offend the monk should he fail to provide hospitality. Meekly, he offered, "Y-you should stay here...uh with me tonight," adding quickly, "...that is...of course...if you want to." The monk's demeanor remained serene. "How kind. Yes, I would stay with you."
+
+## Shui's Shame
+
+What followed was a hasty and meager supper of dried fish, rice, and fermented bean curd. Ling ate it with surprising relish. As they ate, they talked. Shui felt his heart calmed somewhat. He told Ling how he admired the monastery and the monks. He shared how he used to make special trips up Ten Thousand Steps just so he could speak to the other monks and smell the sweet incense. "Why did you stop?" queried Ling. Fresh feelings of embarassment and even guilt arose for Shui. Ling had clearly not been offended by his smelly home or his humble food. Why had he stopped? "Forgive me..." Shui whispered, "I...am not like the monks there. I am not wise or, or intelligent enough to..." He paused. Ling smiled and slowly nodded, inviting him to continue without fear. Shui screwed up his courage and blurted out, "I am not strong enough, intelligent enough, patient enough, dedicated enough, mindful enough...special enough to be a monk!"
+
+Another long pause lingered for what seemed to Shui to be an eternity. Ling, for his part, did nothing to disturb Shui's discomfort. What did, was strange indeed. A sound like a low, gutteral chirping. First, just the one chirp then several in chorus began. "What is that noise?" asked Ling. "That noise tells me I must go to the river and fish. Those are my birds." Shui explained that he used trained cormorants to catch the fish he ate and sold. In all his travels, Ling had never heard of such a thing. "May I accompany you?" he asked. After his outburst, Shui felt he had nothing left to hide. He nodded and the two went out together.
+
+## The Genius of Shui
+
+The two men climbed into Shui's small watercraft as night fell. Shui hung a lantern at the bow and the stern, waited for his birds to flutter into the boat, then pushed off into the inky water. Observing the birds, Ling wondered aloud, "How do these birds know to share their catch with you?" "Naturally, they do not" replied Shui. "I've raised each of them from eggs. They live with me. I keep them warm, treat them when they are ill, and..." he paused "...and mourn them when they die. As far as I know, I'm the first to use cormorants in this way." At this, Ling's eyebrow raised. "Oh?" 
+
+Humbly, Shui explained how as a boy, he had observed the graceful birds catching fish with ease while his father and uncles toiled with nets under the hot sun. He daydreamed about training the birds to share their fish with him yet after capturing several, couldn't seem to persuade them. Eventually, he struck upon the idea of raising them from hatchlings and caring for them to remove their fear.
+
+The monk allowed a slow smile to crack across his serene features. "Well, I'm anxious to see how a fisherman catches fish without knowing how to catch fish!" Something warm radiated from Shui's chest and into the tips of his fingers and toes. He was tingling with excitement!
+
+The birds sat perched on the edge of the boat. Shui tied slender threads around each bird's neck. "Are those to keep your birds from escaping?" Ling asked. Baffled, Shui replied "You really don't see?" Ling explained that he had never fished and didn't intuit the strings' purpose. Silently, Shui thought that this must not be a very wise monk to miss what seemed second nature to him. Like a delighted child, open and playful, Shui laughed, "Ha! Just wait and see!"
+
+Without warning, one of the birds lept into the water, piercing it like a lance. There was hardly a splash or a sound. After only seconds, the bird returned with a huge fish in its gullet. "Do you see now!?" exlaimed Shui as loudly as he dared. Ling was puzzled and said nothing. Like lightning, the other birds dove beneath the surface just as the fisherman scooped the first bird into the boat. Shui whispered to the bird and gently massaged its throat until it dropped its fish onto the deck. "That one's for me!" Shui said. Soon after, the other birds emerged. All but one had secured its own fish. Shui's excitement had infected Ling who also leaned over the side to hoist each bird back into the boat.
+
+After several more minutes of this frenetic dance, it was over. The boat was full of fish! Gratefully, the fisherman removed the string from his beloved birds and tossed each of them a well-earned fish. Finally, Ling the Wise understood. "They can't swallow the fish! That's it isn't it? That's the purpose of the string! They can catch far more than they can possibly eat, so you prevent them for a time then reward each from their own labor. You raise and nurture them so they feel no fear of you. Indeed, the string doesn't keep them from escaping -- your loving kindness does." He paused as a wave of wonder broke over him like the waves of the river. "What insight, skill, fortitude, patience, faithfullness, and genius you possess!"
+
+The lowly fisherman beamed with pride, pulled back his shoulders, and nodded.
